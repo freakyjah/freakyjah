@@ -3,7 +3,7 @@
 
 ![](https://i.postimg.cc/CxksjtHb/cherie-and-crush2.jpg)
 
- ㅤ  ㅤ![](https://i.postimg.cc/0N7hQVVX/ice.gif)  ㅤ ![](https://i.postimg.cc/0N7hQVVX/ice.gif)   ㅤ  ![](https://i.postimg.cc/0N7hQVVX/ice.gif)
+ ㅤ   ㅤ![](https://i.postimg.cc/0N7hQVVX/ice.gif)  ㅤ ![](https://i.postimg.cc/0N7hQVVX/ice.gif)   ㅤ  ![](https://i.postimg.cc/0N7hQVVX/ice.gif)
 
 matching w/ cherrieeee <3 (i might be crush guys...)
 
